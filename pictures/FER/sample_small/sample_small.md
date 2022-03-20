@@ -1,0 +1,1 @@
+Sample pictures (After resizing)
